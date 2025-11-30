@@ -4,3 +4,4 @@ Bunun üçündə aşağıdakı linklə ai-ın işlədiyini təsdiq edirik:
 https://youtu.be/KL-mreXc8mA
 # yeniiii
 # yeniiii
+# yeniiii
